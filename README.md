@@ -51,8 +51,8 @@ Actualmente estoy fortaleciendo mis habilidades técnicas mientras construyo pro
 ---
 
 ## 📫 Conecta conmigo
-- 💼 LinkedIn: *(agrega aquí tu link)*  
-- 📧 Email: *(opcional)*  
+- 💼 LinkedIn: www.linkedin.com/in/natalia-guerra-valencia-167a351b3
+- 📧 Email: nataliaguerrat23@gmail.com
 
 ---
 
